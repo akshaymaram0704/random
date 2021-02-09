@@ -1,0 +1,4 @@
+In a small bowl, add the sugar, warm water, and yeast together. Stir to combine well. The yeast should be activated when it becomes foamy, about 10 minutes. Transfer the flour to a flat surface and make a well in the middle. Add the yeast mixture, yoghurt, salt and oil, knead the dough until the surface becomes smooth and shiny, about 10 minutes. Cover the dough with a damp cloth and let it rise in a warm place (for example: beside the stovetop or warm oven). The dough should double in size, about 1 hour.
+Divide the dough into 8 equal portions. Roll the dough to a 8” circle using a rolling spin.
+Heat up a skillet (cast-iron preferred) over high heat and lightly grease the surface with some oil to avoid the dough from sticking to the skillet. Place the dough on the skillet. When it puffs up and bubbles and burnt spots appear, flip it over and cook the other side. Repeat the same until all dough are done.
+Brush the naan with the melted butter, serve warm.
